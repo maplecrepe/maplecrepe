@@ -1,1 +1,1 @@
-im mae (she/it), the world's worst butch and "game dev"
+im mae (she/it), the world's worst butch and shitty game dev
